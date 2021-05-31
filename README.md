@@ -1,1 +1,1 @@
-# Chocolate-Chip-Cookies
+A chocolate chip cookie is a cookie which features chocolate chips as its distinguished ingredient. Use this brilliant recipe to make these mouth watering chocolate chip cookies. This recipe will guide you while you are trying to make your favourite chocolate chip cookies. You will onyl requrie a few ingredients to make these cookies and you will get the best taste out of them. This method is extremely simple to understand and you will be able to teach your family and friends how to make these cookies. 
